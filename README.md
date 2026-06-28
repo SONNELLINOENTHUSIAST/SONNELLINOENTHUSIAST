@@ -8,7 +8,7 @@
 
 ${\textsf{\color{#FED537} ⑅ ¦ ྀི˖  ࣪𓐇 ̣̣˙ ʝᥲ𝕩 / ძⱺη ˳ ɦ𝐞 , 𝕙i𝒎 , tнᥱყ⠀ ຼ ᩧ‿ ֪֪֪ ݁꒰| 𓈒◌ }}$
 
-${\textsf{\color{#F79A37} ໒꒰ྀི ౦   ̫ o꒱ྀིა ་།ֺּ𓏪̣̣ໃ◞ ⁵𝚝ᥱe𝕟 / ოiɳ᥆r ˳  ⑅ ˚̣̣̣▚ ྀི꒱ྀ }}$
+${\textsf{\color{#F79A37} ໒꒰ྀི ౦   ̫ o꒱ྀིა ་།ֺּ𓏪̣̣ໃ◞ ⁵𝚝ᥱe𝕟 / ოiɳ᥆r ˳ pᥲη ⑅ ˚̣̣̣▚ ྀི꒱ྀ }}$
 
 ${\textsf{\color{#F46D37}  ͜| ͜͝ ︭𓈒ֵ۫ 𝄃⏝ ͜♡  ͝ ། ԃ𝐢ᑯ 𝒔ყs𝕥౿ო , ⁱɯc ︶⑅ꪱ 𓏼། ྀིྀ }}$
 
@@ -18,11 +18,11 @@ ${\textsf{\color{#F46D37}  ͜| ͜͝ ︭𓈒ֵ۫ 𝄃⏝ ͜♡  ͝ ། ԃ𝐢ᑯ 
 
 &emsp;
 
-${\textsf{\color{#F46D37} ꕀ️ ഒ ˖ ｡ ⑅ }}$ e ${\textsf{\color{#F46D37} ꫂ ၴႅၴ ྀིྀིྀིྀིྀི  𓈒 ࿐ }}$
+${\textsf{\color{#F46D37} ꕀ️ ഒ ˖ ｡ ⑅ }}$ <img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/ef18b8d9ea3aab843fdb2aad7ec01fc0b9a51641/IMG-5068.gif" alt="Description" width="20"> ${\textsf{\color{#F46D37} ꫂ ၴႅၴ ྀིྀིྀིྀིྀི  𓈒 ࿐ }}$
 
-${\textsf{\color{#F79A37} ﹒⸝⸝ ⧣₊˚ ➵ ︵︵﹕ }}$ e ${\textsf{\color{#F79A37} >>  ˘ }}$
+${\textsf{\color{#F79A37} ﹒⸝⸝ ⧣₊˚ ➵ ︵︵﹕ }}$ <img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/ef18b8d9ea3aab843fdb2aad7ec01fc0b9a51641/IMG-5053.gif" alt="Description" width="20"> ${\textsf{\color{#F79A37} >>  ˘ }}$
 
-${\textsf{\color{#FED537} 𖥻 }}$ e ${\textsf{\color{#FED537} ₊⠀𓈒ֵ۫ 𝄃⏝ ⊹ }}$
+${\textsf{\color{#FED537} 𖥻 }}$ <img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/ef18b8d9ea3aab843fdb2aad7ec01fc0b9a51641/IMG-5130.gif" alt="Description" width="20"> ${\textsf{\color{#FED537} ₊⠀𓈒ֵ۫ 𝄃⏝ ⊹ }}$
 
 &emsp;
 
