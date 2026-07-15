@@ -36,13 +36,13 @@ ${\textsf{\color{#FED537} ⍴𝕖𝗈pᥣ𝐞 𝒕𝚑αt ᥲrҽ cᥲ𝕡𝐭uя
 <a href="https://github.com/Phobia-Poobia"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/56c7e1cd73a52747a5284fe9f9f6fcdbcc181f47/Untitled262_20260628182347.png" alt="Description" width="225">
 
 &emsp;
-<a href="https://github.com/lovelett3r"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/56c7e1cd73a52747a5284fe9f9f6fcdbcc181f47/Untitled262_20260628182443.png" alt="Description" width="240">
+<a href="https://github.com/lovingl3tters "><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/56c7e1cd73a52747a5284fe9f9f6fcdbcc181f47/Untitled262_20260628182443.png" alt="Description" width="240">
 
 &emsp;
 <a href="https://github.com/Gamblersi"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/56c7e1cd73a52747a5284fe9f9f6fcdbcc181f47/Untitled262_20260628182524.png" alt="Description" width="230">
 
 &emsp;
-<a href="https://github.com/devesto"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/5ddca0f64f1a6a6d3459cc525da3c271b74420b2/Untitled262_20260628182609.png" alt="Description" width="160">
+<a href="https://github.com/DEBTCOLLECTING"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/5ddca0f64f1a6a6d3459cc525da3c271b74420b2/Untitled262_20260628182609.png" alt="Description" width="160">
 
 
 
@@ -73,3 +73,4 @@ ${\textsf{\color{#FED537} ⍴𝕖𝗈pᥣ𝐞 𝒕𝚑αt ᥲrҽ cᥲ𝕡𝐭uя
 
 <img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/b640cf24c316192776b48edb35e635cb682c5e84/Untitled259_20260628173829.png" alt="Description" width="1000">
 </div>
+
