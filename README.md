@@ -1,6 +1,8 @@
 <div align="center">
 
-<a href="https://github.com/title-town"><img> title-town's mafioso 
+<img src="https://github.com/SONNELLINOENTHUSIAST/SONNELLINOENTHUSIAST/blob/8568fd27eb134ed5c8f5e0130431812f5a5a6dba/Screenshot_20260721_164919.jpg" alt="Description" width="500">
+
+<a href="https://github.com/title-town">@title-town</a>
 
 <img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/8c8a32ee70ce7b929474eb0abefe11b88c02914b/Untitled258_20260628071028.png" alt="Description" width="1000">
 &emsp;
