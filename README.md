@@ -1,9 +1,7 @@
 <div align="center">
 
-<img width="648" height="118" alt="1000020370" src="https://github.com/user-attachments/assets/b6da8222-e62b-4a58-96d6-297ee030f69e" />
-
-
-<a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a>
+<p align="center"> <p align="center"> <a href="https://github.com/pt-hall-of-media">
+<img width="648" height="118" alt="Screenshot_20260801_153742_com_android_chrome_ChromeTabbedActivity" src="https://github.com/user-attachments/assets/47d29f65-8fa6-4d97-8e17-e338aea01ad9" />
 
 
 
