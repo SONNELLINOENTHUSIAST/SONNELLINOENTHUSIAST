@@ -6,20 +6,11 @@
 
 
 
-<img width="684" height="131" alt="IMG_20260730_231245" src="https://github.com/user-attachments/assets/75e83ede-a95f-4d6b-862e-1009a5d537de" />
 
-
-
-<a href="https://github.com/fans-town">@fans-town</a>
-
-<img width="673" height="119" alt="IMG_20260729_103123" src="https://github.com/user-attachments/assets/89fe32c0-5fea-4033-9c9f-bfbc52c9fe57" />
-
-
-<a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>
-
+<p align="center"> <p align="center"> <a href="https://github.com/title-town">
 <img src="https://github.com/SONNELLINOENTHUSIAST/SONNELLINOENTHUSIAST/blob/8568fd27eb134ed5c8f5e0130431812f5a5a6dba/Screenshot_20260721_164919.jpg" alt="Description" width="500">
 
-<a href="https://github.com/title-town">@title-town</a>
+
 
 <img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/8c8a32ee70ce7b929474eb0abefe11b88c02914b/Untitled258_20260628071028.png" alt="Description" width="1000">
 &emsp;
