@@ -1,20 +1,7 @@
 <div align="center">
 
-<p align="center"> <p align="center"> <a href="https://github.com/ponytown-nominations">
-<img width="609" height="109" alt="1000020408" src="https://github.com/user-attachments/assets/bab55f96-793d-423c-9ae8-975f1c571322" />
-
-
-
-<p align="center"> <p align="center"> <a href="https://github.com/pt-hall-of-media">
-<img width="648" height="118" alt="Screenshot_20260801_153742_com_android_chrome_ChromeTabbedActivity" src="https://github.com/user-attachments/assets/47d29f65-8fa6-4d97-8e17-e338aea01ad9" />
-
-
-
-
-
-<p align="center"> <p align="center"> <a href="https://github.com/title-town">
-<img src="https://github.com/SONNELLINOENTHUSIAST/SONNELLINOENTHUSIAST/blob/8568fd27eb134ed5c8f5e0130431812f5a5a6dba/Screenshot_20260721_164919.jpg" alt="Description" width="500">
-
+<sub> <a href="https://github.com/fans-town">@fans-town</a> <a href="https://github.com/tilte-town">@title-town</a> <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a> <a href="https://github.com/charactersofpt">@charactersofpt</a> <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>  <a href="https://github.com/ponytown-nominations">@ponytown-nominations</a> <a href="https://github.com/pt-characters">@pt-characters</a> 
+</sub>
 
 
 <img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/8c8a32ee70ce7b929474eb0abefe11b88c02914b/Untitled258_20260628071028.png" alt="Description" width="1000">
