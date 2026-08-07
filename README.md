@@ -8,7 +8,7 @@
 &emsp;
 <a href="https://hits.sh/github.com/SONNELLINOENTHUSIAST/"><img alt="Hits" src="https://hits.sh/github.com/SONNELLINOENTHUSIAST.svg?label=in%20debt.&extraCount=10987&color=F46D37&labelColor=FED537"/></a>
 
-<a href="https://github.com/pt-walk-of-fame"> <img width="2500" height="2360" alt="622429246-f743a804-cffb-4a2f-983a-9410a9923ba0" src="https://github.com/user-attachments/assets/0976832c-95c5-40e7-999f-5c7e5f8a82bc" />
+<a href="https://github.com/pt-walk-of-fame"> <img width="210" height="210" alt="622429246-f743a804-cffb-4a2f-983a-9410a9923ba0" src="https://github.com/user-attachments/assets/0976832c-95c5-40e7-999f-5c7e5f8a82bc" />
 
 
 &emsp;
