@@ -1,6 +1,6 @@
 <div align="center">
 
-<sub> <a href="https://github.com/fans-town">@fans-town</a> <a href="https://github.com/tilte-town">@title-town</a> <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a> <a href="https://github.com/charactersofpt">@charactersofpt</a> <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>  <a href="https://github.com/ponytown-nominations">@ponytown-nominations</a> <a href="https://github.com/pt-characters">@pt-characters</a> 
+<sub> <a href="https://github.com/fans-town">@fans-town</a> <a href="https://github.com/tilte-town">@title-town</a> <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a> <a href="https://github.com/charactersofpt">@charactersofpt</a> <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>  <a href="https://github.com/ponytown-nominations">@ponytown-nominations</a> <a href="https://github.com/pt-characters">@pt-characters</a>  <a href="https://github.com/pt-fashion">@pt-fashion</a> 
 </sub>
 
 
