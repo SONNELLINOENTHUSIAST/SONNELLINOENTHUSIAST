@@ -19,7 +19,7 @@ ${\textsf{\color{#F79A37} ໒꒰ྀི ౦   ̫ o꒱ྀིა ་།ֺּ𓏪̣̣
 
 ${\textsf{\color{#F46D37}  ͜| ͜͝ ︭𓈒ֵ۫ 𝄃⏝ ͜♡  ͝ ། ԃ𝐢ᑯ 𝒔ყs𝕥౿ო , ⁱɯc ︶⑅ꪱ 𓏼། ྀིྀ }}$
 
-${\textsf{\color{#F46D37} | ͜͝ ︭𓈒ֵ۫ ౦   ̫ Italian  /  English speaker }}$
+
 &emsp;
 
 <img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/8c8a32ee70ce7b929474eb0abefe11b88c02914b/Untitled248_20260627214208.png" alt="Description" width="500">
