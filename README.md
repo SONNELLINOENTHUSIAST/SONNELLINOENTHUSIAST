@@ -32,48 +32,7 @@ ${\textsf{\color{#F79A37} ﹒⸝⸝ ⧣₊˚ ➵ ︵︵﹕ }}$ <img src="https:/
 
 ${\textsf{\color{#FED537} 𖥻 }}$ <img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/ef18b8d9ea3aab843fdb2aad7ec01fc0b9a51641/IMG-5130.gif" alt="Description" width="20"> ${\textsf{\color{#FED537} ₊⠀𓈒ֵ۫ 𝄃⏝ ⊹ }}$
 
-&emsp;
 
-${\textsf{\color{#FED537} ⍴𝕖𝗈pᥣ𝐞 𝒕𝚑αt ᥲrҽ cᥲ𝕡𝐭uяᥱԃ 𝒃ᥡ uડ ; }}$
-
-&emsp;
-
-<a href="https://github.com/L0VES1CKk"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/56c7e1cd73a52747a5284fe9f9f6fcdbcc181f47/Untitled262_20260628182205.png" alt="Description" width="170">
-
-&emsp;
-<a href="https://github.com/Phobia-Poobia"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/56c7e1cd73a52747a5284fe9f9f6fcdbcc181f47/Untitled262_20260628182347.png" alt="Description" width="225">
-
-&emsp;
-<a href="https://github.com/lovingl3tters "><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/56c7e1cd73a52747a5284fe9f9f6fcdbcc181f47/Untitled262_20260628182443.png" alt="Description" width="240">
-
-&emsp;
-<a href="https://github.com/Gamblersi"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/56c7e1cd73a52747a5284fe9f9f6fcdbcc181f47/Untitled262_20260628182524.png" alt="Description" width="230">
-
-&emsp;
-<a href="https://github.com/DEBTCOLLECTING"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/5ddca0f64f1a6a6d3459cc525da3c271b74420b2/Untitled262_20260628182609.png" alt="Description" width="160">
-
-
-
-&emsp;
-<a href="https://github.com/zackingaround"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/56c7e1cd73a52747a5284fe9f9f6fcdbcc181f47/Untitled262_20260628182751.png" alt="Description" width="190">
-
-&emsp;
-<a href="https://github.com/p0kerchips"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/56c7e1cd73a52747a5284fe9f9f6fcdbcc181f47/Untitled262_20260628182935.png" alt="Description" width="190">
-
-&emsp;
-<a href="https://github.com/mvvnchkin"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/56c7e1cd73a52747a5284fe9f9f6fcdbcc181f47/Untitled262_20260628183022.png" alt="Description" width="170">
-
-&emsp;
-<a href="https://github.com/theultimatekohamster"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/56c7e1cd73a52747a5284fe9f9f6fcdbcc181f47/Untitled262_20260628183154.png" alt="Description" width="280">
-
-&emsp;
-<a href="https://github.com/gaylukas"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/56c7e1cd73a52747a5284fe9f9f6fcdbcc181f47/Untitled262_20260628183248.png" alt="Description" width="190">
-
-&emsp;
-<a href="https://github.com/orderofthepig"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/7af4d23b2f6fbe70508211dc95e4d31159e29256/Untitled262_20260628183319.png" alt="Description" width="190">
-
-&emsp;
-<a href="https://github.com/AcxerSonnellino"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/56c7e1cd73a52747a5284fe9f9f6fcdbcc181f47/Untitled262_20260628183815.png" alt="Description" width="200">
 
 &emsp;
 <a href="https://github.com/shinjupaw"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/56c7e1cd73a52747a5284fe9f9f6fcdbcc181f47/Untitled262_20260628183652.png" alt="Description" width="400">
