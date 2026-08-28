@@ -3,6 +3,7 @@
 <sub> <a href="https://github.com/fans-town">@fans-town</a> <a href="https://github.com/tilte-town">@title-town</a> <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a> <a href="https://github.com/charactersofpt">@charactersofpt</a> <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>  <a href="https://github.com/ponytown-nominations">@ponytown-nominations</a> <a href="https://github.com/pt-characters">@pt-characters</a>  <a href="https://github.com/pt-fashion">@pt-fashion</a>  <a href="https://github.com/ship-town">@ship-town</a>   <a href="https://github.com/cosplay-town">@cosplay-town</a> <a href="https://github.com/style-town">@style-town</a>   <a href="https://github.com/character-town">@character-town</a> 
 </sub>
 
+${\textsf{\color{#FED537} 𝚝𝚑𝚊𝚗𝚔 𝚢𝚘𝚞 !! 
 
 <img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/8c8a32ee70ce7b929474eb0abefe11b88c02914b/Untitled258_20260628071028.png" alt="Description" width="1000">
 &emsp;
