@@ -13,4 +13,4 @@ TYSM OOMF THAT'S LITERALLY ME!
 (gifted by acxer) 
 
 
-(possible remake?) 
+(probably no remake cuz i don't know how to design, message me if u want to help/nf) 
