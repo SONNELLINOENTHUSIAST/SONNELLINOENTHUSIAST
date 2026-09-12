@@ -6,7 +6,6 @@
 ${\textsf{\color{#FED537} 𝚝𝚑𝚊𝚗𝚔 𝚢𝚘𝚞 !!}}$ 
 
 
-16 year old
 
 <img width="1536" height="2048" alt="1000021907" src="https://github.com/user-attachments/assets/205b756b-f57d-41bd-a55b-33b22c6fd9a8" />
 
