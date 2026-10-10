@@ -6,6 +6,8 @@
 
 ${\textsf{\color{#C5FFF6} jax　　or　　don }}$
 
+${\textsf{\color{#C5FFF6} taken ♡ ilysm }}$
+
 <br>
 
 ${\textsf{\color{#816937} isfp　　9w8　　so/sp　　947 }}$
