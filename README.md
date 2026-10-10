@@ -6,7 +6,7 @@
 
 ${\textsf{\color{#C5FFF6} jax　　or　　don }}$
 
-${\textsf{\color{#C5FFF6} taken ♡ ilysm }}$
+${\textsf{\color{#be8488} taken ♡ ilysm }}$
 
 <br>
 
