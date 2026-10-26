@@ -20,6 +20,7 @@ ${\textsf{\color{#A1AF74}　　d.i.d.　　system }}$
 
 </div>
 
+
 <div align="center">
 
 <details>
@@ -28,7 +29,7 @@ ${\textsf{\color{#A1AF74}　　d.i.d.　　system }}$
 <div align="center">
 
 <br>
-
+ 
 <a href="https://github.com/fans-town">fans-town</a>, <a href="https://github.com/title-town">title-town</a>, <a href="https://github.com/pt-hall-of-media">pt-hall-of-media</a>, <a href="https://github.com/charactersofpt">charactersofpt</a>, <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a>, <a href="https://github.com/ponytown-nominations">ponytown-nominations</a>, <a href="https://github.com/pt-characters">pt-characters</a>, <a href="https://github.com/pt-fashion">pt-fashion</a>, <a href="https://github.com/ship-town">ship-town</a>, <a href="https://github.com/cosplay-town">cosplay-town</a>, <a href="https://github.com/style-town">style-town</a>, <a href="https://github.com/character-town">character-town</a>, <a href="https://github.com/kaotown">kaotown</a>, <a href="https://github.com/Ponytowns-rewards">ponytowns-rewards</a>, <a href="https://github.com/forsakentown">forsakentown</a>, <a href="https://github.com/choco-town">choco-town</a>, <a href="https://github.com/casinotown">casinotown</a>, <a href="https://github.com/daggerstruckmage">daggerstruckmage</a>, <a href="https://github.com/pt-of-forsaken">pt-of-forsaken</a>
 
  $\color{#FFFFFF}{me\ and\ partner\ on}$ <a href="https://github.com/loverstown">loverstown</a>  $\color{#FFFFFF}{<33}$
@@ -57,4 +58,12 @@ layout made by the cool and awesome <a href="https://github.com/kniferrific">kni
 ![](https://64.media.tumblr.com/728e61eb58f8d0dc774ec24e34001f7d/f90cb87f559a38af-1c/s1280x1920/dedbc761a40daddb95e609dc25bd2d4c2a94dab5.pnj)
 
 </div>
+
+<div align="center">
  
+ <details>
+      <summary> oomfies! </summary>
+
+<br>
+
+wip
