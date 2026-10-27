@@ -8,7 +8,7 @@ ${\textsf{\color{#FFB46D} jax　　or　　don }}$
 
 <br>
 
-${\textsf{\color{#be8488} taken ♡ ilysm }}$
+${\textsf{\color{#ffcd92} taken ♡ ilysm }}$
 
 <br>
 
@@ -31,8 +31,8 @@ ${\textsf{\color{#614751}　　d.i.d.　　system }}$
 
 <a href="https://github.com/fans-town">fans-town</a>, <a href="https://github.com/title-town">title-town</a>, <a href="https://github.com/pt-hall-of-media">pt-hall-of-media</a>, <a href="https://github.com/charactersofpt">charactersofpt</a>, <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a>, <a href="https://github.com/ponytown-nominations">ponytown-nominations</a>, <a href="https://github.com/pt-characters">pt-characters</a>, <a href="https://github.com/pt-fashion">pt-fashion</a>, <a href="https://github.com/ship-town">ship-town</a>, <a href="https://github.com/cosplay-town">cosplay-town</a>, <a href="https://github.com/style-town">style-town</a>, <a href="https://github.com/character-town">character-town</a>, <a href="https://github.com/kaotown">kaotown</a>, <a href="https://github.com/Ponytowns-rewards">ponytowns-rewards</a>, <a href="https://github.com/forsakentown">forsakentown</a>, <a href="https://github.com/choco-town">choco-town</a>, <a href="https://github.com/casinotown">casinotown</a>, <a href="https://github.com/daggerstruckmage">daggerstruckmage</a>, <a href="https://github.com/pt-of-forsaken">pt-of-forsaken</a>, <a href="https://github.com/THE-TEMPIST">THE-TEMPIST</a>
 
- $\color{#FFFFFF}{me\ and\ my\ partner\ on}$ <a
-href="https://github.com/loverstown">loverstown</a> $\color{#FFFFFF} {<333}$
+ $\color{#ffcd92}{me\ and\ my\ partner\ on}$ <a
+href="https://github.com/loverstown">loverstown</a> $\color{#be8488} {<333}$
 
 </div>
 
