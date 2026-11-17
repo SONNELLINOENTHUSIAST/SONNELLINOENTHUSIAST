@@ -10,7 +10,6 @@ ${\textsf{\color{#FFB46D} jax　　or　　don }}$
 
 <br>
 
-${\textsf{\color{#ffcd92} taken ♡ ilysm }}$
 
 <br>
 
